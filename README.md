@@ -1,0 +1,2 @@
+# Mandrix-no-troll
+UwU
